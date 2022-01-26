@@ -7,3 +7,5 @@ https://ufile.io/1imfw30f
 
 
 Download the file and post the key so I will give you the key for free
+
+Please send mail : freetoolpega@gmail.com
