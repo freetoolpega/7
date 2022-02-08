@@ -1,6 +1,7 @@
 1. Free tools pega 
 Link download free : 
-https://drive.google.com/file/d/1mKnTO8lZwBQhHluo-mCzv8urqRSktVO_/view?usp=sharing
+
+https://ufile.io/hzdemdu2
 
 Link download free with VPN
 https://ufile.io/g6e6hpkw
