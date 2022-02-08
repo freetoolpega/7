@@ -12,7 +12,7 @@ Please send mail : freetoolpega@gmail.com
 2. Free tool Pega Report Pending 
 
 Link download free with VPN : 
-https://ufile.io/klv42j3r
+https://ufile.io/g6e6hpkw
 
 3. Tool Data not user pega
 https://ufile.io/nfndgql7
