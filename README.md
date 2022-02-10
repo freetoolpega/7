@@ -10,7 +10,8 @@ Download the file and post the key so I will give you the key for free
 
 Please send mail : freetoolpega@gmail.com
 
-2. Free tool Pega Report Pending 
+2. Free tool Pega Report Pending
+https://ufile.io/xii9czb4
 
 Link download free with VPN : 
 https://ufile.io/klv42j3r
