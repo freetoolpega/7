@@ -10,7 +10,8 @@ https://ufile.io/poy8wy1k
 
 2. Tool Pega7 Export Pending with VPN
 https://ufile.io/g87r8gnn
-edit file Config
+
+Edit file Config
 
 ![image](https://user-images.githubusercontent.com/98411146/154044406-d7e9407f-abed-442a-8f3c-7a24000e7f0d.png)
 
