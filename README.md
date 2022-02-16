@@ -34,5 +34,3 @@ Please send mail : freetoolpega@gmail.com
 ----------------------------------
 Update data fe pega 
 
-15.02 
-https://ufile.io/8h6xv3e6
