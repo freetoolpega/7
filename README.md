@@ -21,7 +21,7 @@ Edit file Config
 
 
    Tool Pega7  Export Pending no VPN
-https://ufile.io/ght6q5zu
+https://ufile.io/ao0wpspx
 
 3. Tool Data Omidoc not user pega
 https://ufile.io/nfndgql7
