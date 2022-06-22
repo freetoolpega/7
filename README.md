@@ -33,5 +33,5 @@ Download the file and post the key so I will give you the key for free
 ----------------------------------
 Update data fe pega 
 
-https://docs.google.com/spreadsheets/d/1Hnr6Vqaq3F6iNzO2egkTJIfjSGqlwuL-/edit?usp=sharing&ouid=116671376664607432766&rtpof=true&sd=true
+https://docs.google.com/spreadsheets/d/1SjBU6f9m5uJZJHqJCGJpb8EBRegKd4G1vVnr8UWq7lU/edit#gid=0
 
