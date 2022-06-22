@@ -30,7 +30,8 @@ https://ufile.io/nfndgql7
 https://ufile.io/akkb76c1
 
 Download the file and post the key so I will give you the key for free
-Please send mail : freetoolpega@gmail.com
 ----------------------------------
 Update data fe pega 
+
+https://docs.google.com/spreadsheets/d/1H48p8vY_DQQ0G2kA9z_GHpObnHuSmXxw/edit?usp=sharing&ouid=116671376664607432766&rtpof=true&sd=true
 
